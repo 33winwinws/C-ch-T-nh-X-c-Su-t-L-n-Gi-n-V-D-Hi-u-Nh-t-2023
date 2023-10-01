@@ -1,1 +1,1 @@
-# C-ch-T-nh-X-c-Su-t-L-n-Gi-n-V-D-Hi-u-Nh-t-2023
+Cách Tính Xác Suất Lô đề đơn Giản Và Dễ Hiểu Nhất 2023 -  - https://33win.ws/cach-tinh-xac-suat-lo-de/
